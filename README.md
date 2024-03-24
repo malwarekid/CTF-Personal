@@ -7,4 +7,4 @@
     /'|_   _/'\ 
     \___)=(___/
     
-    [*] Instagram @scriptkiddiee
+    [*] Instagram @malwarekid
